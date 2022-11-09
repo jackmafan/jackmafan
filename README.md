@@ -1,0 +1,4 @@
+- Hi, this is Jack Fan's profile. Unless you're Zuckerberg, nothing useful information can be found here 
+- Junior student of NYCU EE department
+- Favorite to do: Baseball > Writing > Sleeping
+- Regret for the things that never can be done
